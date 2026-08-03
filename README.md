@@ -1,3 +1,2 @@
-My Collaborative Project
-Added by Hadassa
-Added by collabarator 2
+Added by Harathi
+Added by collabarator 1
